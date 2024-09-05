@@ -5,7 +5,7 @@
 - Instagram: [Instagram](https://www.instagram.com/chandraaa_856?igsh=NDVvN2xobGZqMmRj)
 - Tiktok: [Tiktok](https://www.tiktok.com/@chandraaa_856?_t=8pT7hyxz81h&_r=1)
 - YouTube: [YouTube](https://www.youtube.com/@chandrarasya.a4835)
-- Email: [Email](@chandrara309@gmail.com)
+- Email: [Email](chandrara309@gmail.com)
 
 👋 Hi, I’m @chandra 
 - 👀 I’m interested in ...
